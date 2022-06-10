@@ -104,30 +104,8 @@ ___
 
 * > __[Twitter](https://twitter.com/eng_toyin)__
   
-* > __[Telephone](tel:+249996543850)__
   
 * > __[Email](mailto:toyinmuhammed50@gmail.com)__
 
 <br>
 
----
-
-<br>
-
-***
-
-<br>
-
-***
-
-<br>
-
-***
-
-<br>
-
-***
-
-<br>
-
-***
