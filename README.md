@@ -7,7 +7,7 @@ Software Engineer - Open source contributor
 Building cool stuff
 
 * 🌍  I'm based in Lagos, Nigeria
-* 🖥️  See my portfolio at [https://github.com/Toyin5](http://https://github.com/Toyin5)
+* 🖥️  See my portfolio at [link](https://portfolio-blog-ashy-ten.vercel.app/)
 * 🤝  I'm open to collaborating on Cool projects
 
 
